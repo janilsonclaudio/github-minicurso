@@ -6,4 +6,4 @@ Uma lista de participantes do minicurso.
 - Entrei no BTI em 2016 e sinceramente ainda não faço ideia de quando vou sair. Espero que antes do tempo limite.
 
 ### Janilson Claudio
-- Sou um doido ai que curte matematica, lol, musica eletronica e assistir tretas
+- "Sou um doido ai que curte matematica, lol, musica eletronica e assistir tretas"
